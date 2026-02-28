@@ -1,2 +1,0 @@
-# jvcaixet.github.io
-cAIxeta
